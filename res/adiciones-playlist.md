@@ -15,4 +15,6 @@ Por ejemplo:
 - La Camisa Negra - Juanes - @JacobHawk603
 - Hell Above - Pierce the Veil- @Strato1257
 - Dangerous - Michael Jackson - @Manuelavalosave
+- The death of me - Asking Alexandria - @JowsNunez
+- Golden - Harry Styles - @JowsNunez 
 
